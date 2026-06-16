@@ -20,6 +20,6 @@ A business shouldn't need to hire a specialist for every small project. Sanders 
 
 ### Contact
 
-Email: your-email@example.com
+Email: lliwsanders@icloud.com
 
-Phone: (000) 000-0000
+Phone: (828) 423-8613
